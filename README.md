@@ -1,6 +1,4 @@
-# Minecraft Black Hole Combat Wallpaper (Lite)
-
-# The-Summer-Hikaru-Died-iOS-Interactive-Wallpaper
+# My-Custom-Tendies-Wallpapers
 
 High-quality animated wallpapers for iPhone.
 
